@@ -10,3 +10,24 @@ https://www.linkedin.com/in/stefankosiewski/
 https://independent.academia.edu/Kosiewski  
 https://vk.com/my.sowa
 https://x.com/sowa 
+
+Budowa szkatułkowa Poematu
+Lazurowego Stefana Kosiewskiego
+to kompozycja wielopłaszczyznowa
+
+a w niej płaszczyznę treści językowych
+przechodzą wielopoziomowe narracje
+w osnowie konstrukcyjnej Aplikacji
+
+Ciosany z Wysoką Precyzją kamień
+Boski diament szlachci tu Pański stół Muza
+Siła Sprawcza do Kwadratu Kosmiczne
+
+Karo Strukturalne we Wrotach świata
+poezji nieprzedstawionej ma strukturę
+ziarnistą porowatą i szorstką na dotyk
+
+https://gloria.tv/post/SupXBvFvQ9E438Wo8jsGpJks8
+https://vkvideo.ru/video-208331855_456239036
+https://vk.com/video467751157_456239937
+https://youtu.be/G8AArd0g96g
